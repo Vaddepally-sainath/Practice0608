@@ -8,4 +8,4 @@ i have to go away.
 my phone is poco x3
 iam developer1
 working in dev1 hyderabad
-
+laptop is dell
